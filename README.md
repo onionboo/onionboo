@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @onionboo
 - 👀 I’m interested in asian pop culture and musics
-- 🌱 I’m currently learning Data science and español
+- 🌱 I’m currently learning Español
 - 😄 Pronouns: she/they
 - ⚡ Fun fact: I'm not a so-fun person tho
 
